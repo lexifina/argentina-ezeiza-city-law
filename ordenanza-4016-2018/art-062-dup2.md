@@ -1,0 +1,1 @@
+ARTICULO 62: Por los servicios destinados a la Inspección “in situ” para la verificación de marcas y señales de ganado vacuno, ovino, equino, porcino, caprino, y revisión de las guías de traslados y/o permisos de marcación en cualquier zona del Distrito abonaran un mínimo de:

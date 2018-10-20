@@ -1,0 +1,1 @@
+ARTÍCULO 191: Por el otorgamiento, renovación reposición de carnet, libreta o credencial de carácter individual que no tenga otro derecho establecido en la presente Ordenanza, se pagará anualmente, excepto el carnet de conductor:

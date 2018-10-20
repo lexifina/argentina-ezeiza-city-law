@@ -1,0 +1,1 @@
+ARTÍCULO 239: Los permisos para activar referidos en los artículos 237 y 238, serán otorgados por la oficina técnica municipal correspondiente, siempre que a su juicio, la venta de flores que no ocasionen perjuicios a terceros.

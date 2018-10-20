@@ -1,0 +1,3 @@
+ARTICULO 347: Se regirá por lo previsto en la Ordenanza Fiscal para el año vigente.
+CAPITULO XXX
+TASA POR HOMOLOGACION DE ACUERDOS ANTE LA DIRECCION DE DEFENSA DEL CONSUMIDOR

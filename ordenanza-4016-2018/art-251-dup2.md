@@ -1,0 +1,1 @@
+ARTÍCULO 251: En los casos de situaciones temporarias comprendidas en las causas a que se refiere el artículo anterior, el derecho a abonar será determinado por metro cuadrado (m2), por mes, a razón de:

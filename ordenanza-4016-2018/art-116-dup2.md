@@ -1,0 +1,1 @@
+ARTÍCULO 116: Actividades temporales y/o permanentes realizadas por empresas de publicidad, marketing, realizadores de congresos, real state, desarrolladores de eventos , organizadores de torneos de polo, golf y/o similares, desfiles de todo tipo, pagaran un mínimo por evento de 4250 módulos.

@@ -1,0 +1,1 @@
+ARTÍCULO 113: Régimen simplificado. Para acceder a esta monotasa los contribuyentes deberán acreditar encontrarse inscriptos en hasta la Categoría E del monotributo. La tasa fija mensual a abonar es de 290 módulos.

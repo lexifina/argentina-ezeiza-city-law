@@ -1,0 +1,1 @@
+ARTÍCULO 355: Las empresas y/o particulares, destinadas al alquiler de botes, caballos, bicicletas y/o similares, que no se encuentren alcanzadas por la tasa de Inspección de Seguridad e Higiene, abonarán por mes y por unidad con un mínimo de 10 unidades

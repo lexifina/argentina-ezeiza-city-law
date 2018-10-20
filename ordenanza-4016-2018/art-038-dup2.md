@@ -1,0 +1,1 @@
+ARTÍCULO 38: Por la habilitación de grandes superficies comerciales e industriales, que en el conjunto de sus superficies construidas, cubiertas y semi-cubiertas, que excedan los 100 m2 y hasta 2.499 m2, abonaran en cualquier zona del distrito por cada metro cuadrado de superficie:

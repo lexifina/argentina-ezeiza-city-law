@@ -1,0 +1,1 @@
+ARTICULO 122: Las empresas y/o prestadores de servicio de consultoría y/o asesoría, oficinas administrativas y/o servicios de salud y/o servicios profesionales y/o servicios de administración de fideicomisos abonaran un mínimo de 700 módulos por mes.

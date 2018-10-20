@@ -1,0 +1,1 @@
+ARTICULO 60: Los permisos provisorios en predios al aire libre, destinados a diferentes actividades (depósitos, almacenamiento, acopio y/o similares) que se encuentren en cualquier zona del Distrito abonaran por metro cuadrado un mínimo de:

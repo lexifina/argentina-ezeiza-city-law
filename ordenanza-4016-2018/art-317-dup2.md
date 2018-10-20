@@ -1,0 +1,1 @@
+ARTÍCULO 317: Por inicio de trámite de PERMISO DE INSTALACION Y FUNCIONAMIENTO para instalaciones generadoras de campos magnéticos en el rango de frecuencias mayores a 300 KHz en cumplimiento de lo dispuesto en la resolución 144/07 se abonarán:

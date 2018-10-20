@@ -1,0 +1,1 @@
+ARTICULO 48: La habilitación de locales destinados al funcionamiento de casas de deportes y/o venta de artículos y/o prendas deportivas de cualquier índole, y/o similares que se encuentren en cualquier zona del Distrito abonaran un mínimo de:

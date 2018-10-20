@@ -1,0 +1,1 @@
+ARTÍCULO 228: Por cada revisión de planos de construcción o refacción de bóvedas. Se abonará el valor de la obra determinado en el inciso a) del ARTÍCULO 224 para el destino vivienda tipo A, superficie cubierta con una alícuota del 5%.-

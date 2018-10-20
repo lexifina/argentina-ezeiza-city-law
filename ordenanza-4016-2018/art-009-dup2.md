@@ -1,0 +1,49 @@
+ARTICULO 9: Por el servicio de recolección de residuos realizados a Supermercados y Autoservicios tributaran desde el momento de incorporación a la tasa y por mes
+CATEGORIA
+METROS
+1
+Categoría 1
+HASTA 250 M2
+2
+Categoría 2
+DE 251 HASTA 500 M2
+3
+Categoría 3
+DE 501 AHASTA 750 M2
+4
+Categoría 4
+DE 751 HASTA 900 M2
+5
+Categoría 5
+DE 901 HASTA 1000 M2
+6
+Categoría 6
+MAS DE 1000 M2
+MODULOS
+60
+4
+28
+18
+16
+480
+480
+64
+108
+400
+1200
+2400
+4000
+6000
+8000
+12000
+24000
+30000
+30000
+500
+1000
+1500
+3000
+4500
+6000
+CAPITULO III
+TASA POR HABILITACION DE COMERCIOS E INDUSTRIAS Y/O PRESTADORES DE SERVICIOS

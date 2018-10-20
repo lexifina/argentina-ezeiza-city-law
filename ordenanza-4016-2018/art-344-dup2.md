@@ -1,0 +1,26 @@
+ARTÍCULO 344: La licencia y/o transferencias descripta en el artículo 339, se podrá financiar hasta en 12 cuotas.
+298
+423
+64
+95
+65
+80
+120
+80
+305
+185
+125
+400
+305
+200
+305
+90
+200
+2800
+960
+300
+330
+400
+155
+CAPITULO XXVII
+CONTRIBUCION ESPECIAL POR MANTENIMIENTO DE RED VIAL

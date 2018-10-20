@@ -1,0 +1,1 @@
+ARTÍCULO 25: Por la habilitación de comercios que se dediquen a la venta de Artículos Deportivos tales como: Golf, Equitación, Polo, Rugby, Tenis y Jockey, que se encuentren en las calles comerciales de Canning, según art. 193 de la Ordenanza Fiscal, abonarán un minimo de:

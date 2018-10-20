@@ -1,0 +1,2 @@
+ARTÍCULO 365: Facúltese al Departamento Ejecutivo a firmar convenio con los Entes prestadores de Servicios de gas, agua corriente, cloacas, telefonía y otras de comunicación por cable, a los fines de establecer un canon a la facturación de sus prestaciones cuyo pago corresponderá a los usuarios.
+El canon a establecer no podrá superar el seis por ciento (6%) sobre la facturación sin impuestos, o un monto fijo no mayor a dos mil (2000) módulos de lo establecido en el Capítulo I - Tasa por Servicios Generales.

@@ -1,0 +1,1 @@
+ARTÍCULO 262: Los bailes, festivales autorizados, que por sus características no cobren entradas deberán abonar con una antelación de setenta y dos (72) horas hábiles a la realización del espectáculo una tasa fija por día de espectáculo de:

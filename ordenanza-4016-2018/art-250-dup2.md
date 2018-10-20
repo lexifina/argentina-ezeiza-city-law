@@ -1,0 +1,1 @@
+ARTÍCULO 250: Toda ocupación de la vía pública, que no este contemplada en este capítulo, cualquiera sea la causa o destino, pagará por metro cuadrado de superficie ocupada (la que no podrá ser mayor de un metro de la línea municipal), por mes.

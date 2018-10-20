@@ -1,0 +1,1 @@
+ARTICULO 99: Autorizar a la Secretaria de Ingresos Municipales a adoptar el nomenclador de actividades utilizado por la Afip (RG3537/13) Arba (38/17) y Comarb (17/17) para la liquidación de esta tasa, adoptando las descripciones de actividades previstas en las normas citadas para encuadrar adecuadamente las actividades de los contribuyentes

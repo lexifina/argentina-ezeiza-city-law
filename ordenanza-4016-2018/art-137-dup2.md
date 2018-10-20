@@ -1,0 +1,1 @@
+ARTÍCULO 137: Avisos colocados y pintados, en vehículos de transporte de pasajeros que tuvieran permiso o concesión para circular dentro del partido. Por cada coche, por metro cuadrado o fracción, por mes:

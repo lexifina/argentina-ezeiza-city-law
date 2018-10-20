@@ -1,0 +1,1 @@
+ARTÍCULO 109: El pago de la tasa por Inspección de Seguridad e Higiene no confiere ningún derecho adquirido al contribuyente ni exime del cumplimiento de otras obligaciones fijadas por Ordenanza Fiscal y/o Tributaria u otra legislación vigente.

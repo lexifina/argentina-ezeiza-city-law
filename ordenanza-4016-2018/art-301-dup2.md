@@ -1,0 +1,1 @@
+ARTÍCULO 301: Las empresas de servicios fúnebres que no posean comercio habilitado en el Partido abonarán además de los derechos que correspondan por inhumación un canon por cada introducción foránea de:

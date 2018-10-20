@@ -1,0 +1,1 @@
+ARTICULO 369: Elévese al Departamento Ejecutivo para su conocimiento y demás efectos. Comuníquese a quien corresponda, promulgada, publíquese e insértese en el libro de actas del Honorable Concejo Deliberante bajo el Nº 4016/CD/2017. Dado en la Sala de Sesiones a los veintiocho días del mes de Diciembre del Dos Mil Diecisiete.

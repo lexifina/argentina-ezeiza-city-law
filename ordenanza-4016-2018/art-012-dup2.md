@@ -1,0 +1,1 @@
+ARTÍCULO 12: Para la habilitación de parcelas afectadas a la explotación de la capa superficial o humífera del suelo, y la extracción de tierra, tosca, arcilla, suelo seleccionado, arena, cascajo, pedregullo, sales y demás minerales; por cada hectárea sujeta a las actividades descriptas se deberá abonar un mínimo de:

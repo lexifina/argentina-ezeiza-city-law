@@ -1,0 +1,1 @@
+ARTÍCULO 22: Por la habilitación de circos y/o parque de diversiones y/o similares no permanentes, que desarrollen sus actividades en lugares cerrados o abiertos y que ofrezcan al público espectáculos y/o pasatiempos y/o atracciones, que se radiquen en cualquier zona del distrito, abonarán un mínimo por metro cuadrado de superficie a ocupar igual a:

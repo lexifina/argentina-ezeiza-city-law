@@ -1,0 +1,1 @@
+ARTICULO 70: Por la habilitación y/o autorización de actividades anexas en el Aeropuerto Internacional, como Despachante de Aduanas , Courrier , Logística, Importación , exportación , y Servicios Complementarios, abonaran un mínimo de:

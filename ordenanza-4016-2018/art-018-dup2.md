@@ -1,0 +1,1 @@
+ARTÍCULO 18: La habilitación de grandes superficies comerciales que excedan los 2500 m2.y que los rubros no están contemplados en el artículo 16, abonarán, en cualquier zona del distrito en que se radique y por cada metro cuadrado de superficie:

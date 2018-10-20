@@ -1,0 +1,1 @@
+ARTÍCULO 215: Por cada planilla de certificación o constancia de actuaciones administrativas para gestionar cualquier tipo de habilitación municipal, con una validez de 30 días corridos desde su otorgamiento

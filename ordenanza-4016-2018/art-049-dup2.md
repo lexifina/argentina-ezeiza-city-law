@@ -1,0 +1,1 @@
+ARTICULO 49: La habilitación de locales destinados al funcionamiento de servicios fúnebres y/o casas velatorios y/o funerarias y/o similares que se encuentren en cualquier zona del distrito abonaran un mínimo de:

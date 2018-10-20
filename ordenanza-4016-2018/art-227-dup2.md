@@ -1,0 +1,1 @@
+ARTÍCULO 227: Por demolición se abonará por metro cuadrado el 30% del valor de la obra determinado en el ARTÍCULO 224 inciso a) para el destino vivienda tipo D, superficie cubierta con una alícuota del 3.5%.

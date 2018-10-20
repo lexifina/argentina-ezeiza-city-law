@@ -1,0 +1,4 @@
+ARTÍCULO 106:
+a)Por cada antena y/o antenas coubicadas que se encuentren instaladas en estructuras y/o terrazas y/o azoteas de cualquier altura, para transmisión y/o retransmisión y/o recepción de: televisión satelital y/o telefonía celular móvil o fija y/o servicios de radiocomunicación móvil celular (SRMC) y/o servicio de telefonía móvil (STM) y/o servicio de comunicaciones personales (PCS) y/o servicio radioeléctrico de concentración y enlaces (Trunking), y/o radiodifusión, y/o similares, deberán abonar una tasa fija por mes de 6000 módulos por operador.
+b) Por cada antena para transmisión y/o retransmisión del servicio Internet para un máximo de usuarios de 100 (cien) deberán abonar una tasa fija por mes de 800 módulos.
+c) Por cada estructura soporte de antenas especificas para columnas y o columnas luminarias deberán abonar una tasa fija por mes de 2000 módulos por operador.

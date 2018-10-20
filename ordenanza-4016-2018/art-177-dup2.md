@@ -1,0 +1,1 @@
+ARTÍCULO 177: De acuerdo a lo dispuesto en la Ordenanza Fiscal, deberá abonarse por los servicios administrativos y técnicos que se enumeran a continuación los derechos establecidos en el presente capítulo.
