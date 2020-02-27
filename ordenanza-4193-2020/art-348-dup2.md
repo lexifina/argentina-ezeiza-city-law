@@ -1,0 +1,2 @@
+ARTÍCULO 348: Este tributo de carácter anual, se abonará en la forma en instancia de Habilitar o rehabilitar el comercio por la totalidad del plazo concedido al efecto.
+Para los elementos nuevos, el tributo se ingresará en el momento de efectuar la correspondiente declaración de incorporación, adquisición, tenencia y/o puesta en funcionamiento.
