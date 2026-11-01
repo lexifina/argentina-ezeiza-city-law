@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-ezeiza",
+  "code": "AR-B-EZEIZA",
+  "name": "Ezeiza",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-ezeiza-city-law",
+  "build": "built: municipal ordinances (49 ordinances, 49 versions) from https://sibom.slyt.gba.gob.ar/cities/41",
+  "language": "es",
+  "sources": 1
+}
